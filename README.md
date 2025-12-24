@@ -1,2 +1,2 @@
 hi lol
-i code roblox and do linux and windows stuff
+i code c and do linux stuff
